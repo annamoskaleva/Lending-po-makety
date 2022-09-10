@@ -1,0 +1,1 @@
+# lending-po-makety
